@@ -1,2 +1,2 @@
-# mycheatlife.github.io
-Website
+# mycheat.life
+coming soon
