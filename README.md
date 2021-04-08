@@ -1,2 +1,2 @@
-# mycheat.life
+mycheat.life
 coming soon
